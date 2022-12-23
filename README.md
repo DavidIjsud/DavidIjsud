@@ -19,5 +19,7 @@
     LinkedIn : https://www.linkedin.com/in/david-garcia-romero-73925a206/
     
     FB       : https://www.facebook.com/david.garciaromero.184
+    
+    TikTok (Ayuda a la comunidad)       : https://www.tiktok.com/@davidijsud
    
 
